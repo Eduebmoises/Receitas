@@ -1,6 +1,6 @@
 
 
-# **BOLO DE CHOCOLATE** :cake::happy:
+# **BOLO DE CHOCOLATE** :cake::happy
 
 3 ovos
 
