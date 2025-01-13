@@ -2,6 +2,8 @@
 
 # **BOLO DE CHOCOLATE** 🍰 🤙
 
+1. Primeira etapa.
+
 3 ovos
 
 3/4 xicara de oleo
@@ -11,6 +13,7 @@
 bate
 
 -----------------------------------------------
+2. Segunda Etapa.
 
 depois de batido acrecentar:
 
@@ -23,6 +26,7 @@ depois de batido acrecentar:
 um pitadinha de sal e bate novamente
 
 ----------------------------------------------
+3. Terceira Etapa.
 
 1 colher de sopa de fermento
 
@@ -30,6 +34,7 @@ e  meche com uma colher
 
 ---------------
 
+4. Quarta Etapa
 
 
 #Recheio
